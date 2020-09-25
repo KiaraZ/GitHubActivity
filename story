@@ -1,1 +1,0 @@
-I have a cat. We met each other when I was twelve years old, and now I'm twenty. For the past eight years, we always ate together, slept together, and played games together. But yesterday, he suddenly disappeared.
